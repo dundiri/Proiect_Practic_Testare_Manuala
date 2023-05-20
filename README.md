@@ -1,1 +1,1 @@
-# Proiect_Practic_Testare_Manual
+# Proiect_Practic_Testare_Manuala
